@@ -1,0 +1,1 @@
+C:\Users\00090473\geneview-data\admixture_output.Q
